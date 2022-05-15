@@ -7,7 +7,7 @@ It started at the day before...
 T-1D
 
 I went to sleep... My family did. Me and my parents. Suddenly, my dad's phone started ringing. Worried about healths of relatives, dad went to see who it was. It was from the coaching institute for some reason. They wanted us to go to their office for the next day.
-Why? Supposedly I've been a good student, and they wanted me to join them at the success party. Me on the other hand, was thinking about all the second-hand embarrassment. I've never done anything (well, maybe that was an overstatement) that significant in terms of ranks. I had a 4 digit JEE Mains rank!! The heck were the thinking when they invited me?
+Why? Supposedly I've been a good student, and they wanted me to join them at the success party. Me on the other hand, was thinking about all the second-hand embarrassment. I've never done anything (well, maybe that was an overstatement, with AIR 30 in KVPY-SA) that significant in terms of ranks. I had a 4 digit JEE Mains rank!! The heck were the thinking when they invited me?
 
 T-0D
 
