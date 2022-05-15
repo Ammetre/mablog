@@ -1,0 +1,3 @@
+User-agent: *
+Allow: /
+Sitemap: https://ammetre.github.io/mablog/sitemap.xml
